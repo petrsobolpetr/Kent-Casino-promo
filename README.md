@@ -3,7 +3,7 @@
 
 Kent casino промокод **SPVIP** на 200 фриспинов и 100% к депозиту для новых игроков при регистрации Как получить бонус код Кент казино, условия отыгрыша.
 
-ДОСТУП НА ОФОИЦИАЛЬНЫЙ САЙТ КАЗИНО ПО ССЫЛКЕ [KENT CASINO](https://linkcasino.ru/kent_spvip)
+ДОСТУП НА ОФИЦИАЛЬНЫЙ САЙТ КАЗИНО ПО ССЫЛКЕ [KENT CASINO](https://linkcasino.ru/kent_spvip)
 
 ![Кент Казино промокод](https://github.com/user-attachments/assets/1cacc85a-d5ee-4841-b530-30589e8b76fc)
 
